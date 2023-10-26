@@ -10,3 +10,6 @@ Meu nome e Joao Paulo d. Santos
 ### voce pode entrar em contato comigo 📪
 
 r.joao21@escola.pr.gov.br
+
+
+![](https://media.tenor.com/FTLcK5Rm_YsAAAAC/good-luck-its-okay.gif)
