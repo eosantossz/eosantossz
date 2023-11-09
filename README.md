@@ -12,4 +12,4 @@ Meu nome e Joao Paulo d. Santos
 r.joao21@escola.pr.gov.br
 
 
-![](https://media.tenor.com/FTLcK5Rm_YsAAAAC/good-luck-its-okay.gif)
+![](r.com/dlJSiLUJNmsAAAAC/math-calculate.gif)
